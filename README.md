@@ -1,2 +1,2 @@
 # PRACTICAS PROFESIONALIZANTES I Sebastian Radak
-Trabajo practico Nro1 PRACTICAS PROFESIONALIZANTES. Alumno: Sebastian Radak
+Trabajos: PRACTICAS PROFESIONALIZANTES I. Sebastian Radak
